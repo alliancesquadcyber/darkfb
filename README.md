@@ -1,1 +1,7 @@
-# Dark-fb v1.7
+# TOOLS INI DIBUAT BY AS-CYBER
+
+# FOLLOW IG @alliancesquadcyber
+
+# TEAM InDoNeSiA CYBER ErRoR SySTem
+
+# THANKS FOR ALL
